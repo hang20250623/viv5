@@ -7,6 +7,10 @@
 
 点击访问：七四猫福利导航<a href="https://74mao.com/">（74mao.com）</a>
 
+点击访问：<a href="https://74mao.com/">74猫导航主站</a>
+
+点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
+
 点击访问：<a href="https://cg1-46.pages.dev/">新吃瓜网站</a>
 
 点击访问：<a href="https://cg2-46.pages.dev/">精选影视大餐</a>
@@ -36,10 +40,6 @@
 点击访问：<a href="https://cg2-49.pages.dev/">精选影视大餐网</a>
 
 点击访问：<a href="https://cg3-49.pages.dev/">吃瓜网官网网页版影视大全官网</a>
-
-点击访问：<a href="https://cg4-49.pages.dev/">网站官网入口在线观看</a>
-
-点击访问：<a href="https://cg9-37.pages.dev/">官方网站一区影视</a>
 
 点击访问：<a href="https://cg5-37.pages.dev/">好看的电视剧免费在线观看</a>
 
